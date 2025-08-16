@@ -1,2 +1,2 @@
-send suggestions
+bye bye
 yes
