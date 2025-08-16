@@ -1,2 +1,2 @@
-wsg
+when should i update
 yes
