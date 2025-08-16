@@ -1,2 +1,2 @@
-nigger
+guerolaks
 yes
